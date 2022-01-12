@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @CaiNann
-- 👀 I’m interested in balls
-- 🌱 I’m currently learning gay sex
-- 💞️ I’m looking to collaborate on anything to do with male nudity 
-- 📫 How to reach me - pornhub
+- 👀 I’m interested in programming and game development
+- 🌱 I’m currently learning the basics
+- 💞️ I’m looking to collaborate on anything that is cool 
+- 📫 How to reach me - instagram @cainan.enneking
 
 <!---
 CaiNann/CaiNann is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
