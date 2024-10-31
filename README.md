@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CaiNann
-- 👀 I’m interested in programming and game development
-- 🌱 I’m currently learning the basics
+- 👀 I’m interested in programming
+- 🌱 I’m currently a student at University of California, Santa Cruz
 - 💞️ I’m looking to collaborate on anything that is cool 
 - 📫 How to reach me - cainanenneking2@gmail.com
 
